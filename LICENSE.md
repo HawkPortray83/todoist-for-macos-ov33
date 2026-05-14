@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate Todoist for macOS extension with Todoist for macOS advanced Extension: multi-device sync & custom themes. Featuring multi-device sync and custom themes, it's the
 
 
 
